@@ -70,12 +70,21 @@ Perché ci si mette sempre un’ora a scegliere cosa guardare la sera? Certo è 
 
   - se non ci sono serie iniziate iniziane una nuova che più corrisponda hai gusti selezionati
 
-  ## Traccia 4
+  ## Traccia 9
 
-Preparare le lasagne alla bolognese
+Caricare una foto su Instagram
 
-L’ingrediente segreto
+Cheese!
 
-Chissà perché, per quanto ci provi e segua alla lettera la ricetta, non vengono mai come quelle di nonna! Ho studiato alla perfezione tutti gli ingredienti, le quantità, i tempi e modalità di cottura, ma alla fine le lasagne della nonna sono sempre di un altro livello!
+Durante le vacanze ho fatto mille mila foto, ora come faccio a scegliere quella giusta da caricare su Instagram? I paesaggi mozzafiato che ho visitato non ne avrebbero bisogno, però cercherò il filtro giusto per migliorare la luce e rendere più vividi i colori, in modo che le foto rendano giustizia alla bellezza della natura
 
 ## Esercizio
+
+- accendi il computer
+- apri la cartella contenente le foto della vacanza
+- seleziona cinque foto dei paesaggi più belli e mettili su una cartella separata
+- apri instagram
+- vai sull'icona crea nuuvo post
+- nella selezione delle foto clicca sulla cartella precedentemente creata e seleziona le cinque foto
+- una volta caricate seleziona il filtro per aumentare saturazione e vividezza dei colori
+- premi il tasto pubblica
